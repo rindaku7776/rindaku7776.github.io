@@ -1,0 +1,1 @@
+# rindaku7776.github.io
